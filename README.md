@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @ZoG101, and i'm from Brasil.
+- 👀 I’m interested in... It's a secret.
+- 🌱 I’m still learning.
+- 💞️ I’m looking to collaborate on diferent projects.
+- 📫 You can see me anywhere.
